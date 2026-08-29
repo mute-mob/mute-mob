@@ -19,9 +19,12 @@ $\Large\textcolor{#bef0f6}{\textsf{𝓜𝓾𝓽𝓮 𝓜𝓸𝓫}}$
   $\Large\textcolor{#291ed9}{\textsf{I LOVE REIGEN AND MOB}}$  
     
 >$\textcolor{#ff71e8}{\textsf{"Listen well, we are different than regular people because we are born with special powers.}}$
->$\textcolor{#ff71e8}{\textsf{But that shouldn't give you the illusion that you're a special being.We are part of humanity. Besides our rare power,we are no different than them.}}$  
+>$\textcolor{#ff71e8}{\textsf{But that shouldn't give you the illusion that you're a special being. We are part of humanity.}}$
+>$\textcolor{#ff71e8}{\textsf{Besides our rare power,we are no different than them.}}$  
 >$\textcolor{#ff71e8}{\textsf{People who run fast, people who can sing well, people who study hard, people who are funny, and people with psychic powers.}}$
->$\textcolor{#ff71e8}{\textsf{Are we different from them? Having confidence in your strength is good thing but do not get carried away. Our powers are a dangerous weapon."}}$
+>$\textcolor{#ff71e8}{\textsf{Are we different from them? Having confidence in your strength is good thing but do not get carried away.}}$
+  
+>$\textcolor{#ff71e8}{\textsf{"Stop it, Mob. In the end, you'll be the one that's hurting. At times you don't like it, it's okay to run away."}}$
   
    $\large\textcolor{#f61305}{\textsf{PROSHIP/DARKSHIPS DNI}}$  
 
