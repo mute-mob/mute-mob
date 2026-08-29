@@ -6,4 +6,4 @@ $\Large\textcolor{#bef0f6}{\textsf{𝓜𝓾𝓽𝓮 𝓜𝓸𝓫}}$
 
   $\large\textcolor{#faefda}{\textsf{Check out my strawpage ;3 Down there or in my linkies!!}}$
 
-  ![alt](https://github.com/user-attachments/assets/29985fac-e456-4ab1-991c-01307225dac9)
+  [![strawpage](https://github.com/user-attachments/assets/29985fac-e456-4ab1-991c-01307225dac9 | width=100))](https://safyrana.straw.page)
