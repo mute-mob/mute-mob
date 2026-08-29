@@ -14,7 +14,7 @@ $\Large\textcolor{#bef0f6}{\textsf{𝓜𝓾𝓽𝓮 𝓜𝓸𝓫}}$
 
   $\large\textcolor{#faefda}{\textsf{If u want to add me on discord}}$  $\large\textcolor{#b25eff}{\textsf{: @safyrana!!}}$  
 
-  $\large\textcolor{#faefda}{\textsf{Like I said in my strawpage or pronouns cc I don't remember, I have a mp100 tumblr account that you can ask in my dms!!}}$  
+  $\large\textcolor{#faefda}{\textsf{Like I said in my strawpage or pronouns cc I don't remember, I have a mp100 tumblr account that you can ask in my dms!}}$  
     
   $\Large\textcolor{#291ed9}{\textsf{I LOVE REIGEN AND MOB}}$  
     
