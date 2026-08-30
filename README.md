@@ -6,7 +6,7 @@ $\Large\textcolor{#bef0f6}{\textsf{𝓜𝓾𝓽𝓮 𝓜𝓸𝓫}}$
 
   $\large\textcolor{#faefda}{\textsf{Please don't except a reply when I'm afk or with the 'busy' statuts. W2I, I'll reply later and I appreciate it!!}}$  
   
-  $\large\textcolor{#faefda}{\textsf{Check out my strawpage and pronouns cc ! ;3 Down there or in my linkies!!}}$
+  $\large\textcolor{#faefda}{\textsf{Check out my strawpage, atabook and pronouns cc ! ;3 Down there or in my linkies!!}}$
 
 [<img width="200" height="200" alt="télécharger (67)" src="https://github.com/user-attachments/assets/41f29c44-6324-4c6d-ae03-b4f03f47ac22" />](https://safyrana.straw.page/) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [<img width="200" height="200" alt="STRANGE ICON" src="https://github.com/user-attachments/assets/b0ba7acf-3836-4d31-a8b0-98b7149ac6ea" />](https://pronouns.cc/@safyrana) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
   [<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/6a0e8168-2584-429c-a5e6-b7f119564823" />](https://mobbu.atabook.org/)
