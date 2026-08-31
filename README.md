@@ -24,7 +24,7 @@ $\Large\textcolor{#bef0f6}{\textsf{ᗰᑌTE ᗰOᗷ}}$
   
   $\large\textcolor{#06f900}{\textsf{Online/looking for chat ; You can interact!! If I don't reply or seem afk, you can whisper to me I won't mind!!}}$
 
-  $\large\textcolor{#765eff}{\textsf{Most of the time I'm with @Kusuke Saiki (my sister)! Don't be scared to interact even if I'm with someone!!}}$
+  $\large\textcolor{#765eff}{\textsf{Most of the time I'm with @KusukeSaiki (my sister)! Don't be scared to interact even if I'm with someone!!}}$
 
   $\large\textcolor{#ffaff0}{\textsf{School started so i won't be as active as I used to be. Look at my time zone to be sure, I'm not going to be online from}}$ $\large\textcolor{#ff7b54}{\textsf{11pm to 5pm at most.}}$ $\large\textcolor{#ffaff0}{\textsf{It can change depending on the day, I'll be more active on saturday and sunday.}}$
   
