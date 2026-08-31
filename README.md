@@ -41,7 +41,7 @@ $\Large\textcolor{#bef0f6}{\textsf{ᗰᑌTE ᗰOᗷ}}$
   
 &nbsp;&nbsp;&nbsp; $\large\textcolor{#faefda}{\textsf{strawpage⤴︎)}}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\large\textcolor{#faefda}{\textsf{pronouns cc⤴︎}}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\large\textcolor{#faefda}{\textsf{atabook⤴︎}}$  
 
-$\large\textcolor{#faefda}{\textsf{the strawpage might change cause I don't really like it)}}$
+$\large\textcolor{#faefda}{\textsf{(the strawpage might change cause I don't really like it)}}$
 
 
 
