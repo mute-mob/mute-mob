@@ -10,9 +10,11 @@ $\Large\textcolor{#bef0f6}{\textsf{𝓜𝓾𝓽𝓮 𝓜𝓸𝓫}}$
   $\Large\textcolor{#fbef00}{\textsf{PONYTOWN RELATED :}}$
 
 
-  $\large\textcolor{#faefda}{\textsf{Hii! This Github is mostly for Ponytown! C + H freely!! Really, don't hesitate(˶>⩊<˶)}}$  
+  $\large\textcolor{#faefda}{\textsf{This Github is mostly for Ponytown! C + H freely!! Really, don't hesitate(˶>⩊<˶)}}$  
 
   $\large\textcolor{#faefda}{\textsf{Please don't except a reply when I'm afk or with the 'busy' statuts. W2I, I'll reply later and I appreciate it!!}}$  
+
+  $\large\textcolor{#faefda}{\textsf{Like it's written on the left, I'm most of the time on the right side of the path.
   
   $\large\textcolor{#faefda}{\textsf{Check out my strawpage, pronouns cc and atabook ! ;3 Down there or in my linkies!!}}$
 
