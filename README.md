@@ -6,7 +6,8 @@ $\Large\textcolor{#bef0f6}{\textsf{ᗰᑌTE ᗰOᗷ}}$
 
     
   $\large\textcolor{#c214ff}{\textsf{Hii! I don't have a set username yet, so call me either Mob or mute Mob? Or Safy. You choose for now..}}$  
-  $\large\textcolor{#c214ff}{\textsf{This README looks way better on pc}}$
+    
+  $\large\textcolor{#94dce8}{\textsf{This README looks way better on pc!!!!}}$
     
   $\Large\textcolor{#fbef00}{\textsf{PONYTOWN RELATED :}}$
 
