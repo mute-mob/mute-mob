@@ -28,7 +28,7 @@ $\Large\textcolor{#bef0f6}{\textsf{ᗰᑌTE ᗰOᗷ}}$
 
   $\large\textcolor{#765eff}{\textsf{Most of the time I'm with @KusukeSaiki (my sister)! Don't be scared to interact even if I'm with someone!!}}$
 
-  $\large\textcolor{#ffaff0}{\textsf{School started so i won't be as active as I used to be. Look at my time zone to be sure, I'm not going to be online from}}$ $\large\textcolor{#ff7b54}{\textsf{11pm to 5pm at most.}}$ $\large\textcolor{#ffaff0}{\textsf{It can change depending on the day, I'll be more active on saturday and sunday.}}$
+  $\large\textcolor{#ffaff0}{\textsf{School started so i won't be as active as I used to be. edit: I'm no longer active at all, sorry!! I'll try to log in sometimes but i'll be mostly afk.}}$
   
   $\large\textcolor{#faefda}{\textsf{✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩}}$
 
@@ -37,7 +37,7 @@ $\Large\textcolor{#bef0f6}{\textsf{ᗰᑌTE ᗰOᗷ}}$
     
    $\large\textcolor{#d7b7ff}{\textsf{Check out my strawpage, pronouns cc and atabook ! ;3 Down there or in my linkies!!}}$
 
-[<img width="200" height="200" alt="télécharger (67)" src="https://github.com/user-attachments/assets/41f29c44-6324-4c6d-ae03-b4f03f47ac22" />](https://mobs-axolotl.straw.page/) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [<img width="200" height="200" alt="STRANGE ICON" src="https://github.com/user-attachments/assets/b0ba7acf-3836-4d31-a8b0-98b7149ac6ea" />](https://pronouns.cc/@safyrana) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+[<img width="200" height="200" alt="télécharger (67)" src="https://github.com/user-attachments/assets/41f29c44-6324-4c6d-ae03-b4f03f47ac22" />](https://kageyamamobshigeo.straw.page/) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [<img width="200" height="200" alt="STRANGE ICON" src="https://github.com/user-attachments/assets/b0ba7acf-3836-4d31-a8b0-98b7149ac6ea" />](https://pronouns.cc/@safyrana) &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
   [<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/6a0e8168-2584-429c-a5e6-b7f119564823" />](https://mobbu.atabook.org/)
 
   
