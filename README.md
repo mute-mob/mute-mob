@@ -28,7 +28,7 @@ $\Large\textcolor{#bef0f6}{\textsf{ᗰᑌTE ᗰOᗷ}}$
 
   $\large\textcolor{#765eff}{\textsf{Most of the time I'm with @KusukeSaiki (my sister)! Don't be scared to interact even if I'm with someone!!}}$
 
-  $\large\textcolor{#ffaff0}{\textsf{School started so i won't be as active as I used to be. edit: I'm no longer active at all, sorry!! I'll try to log in sometimes but i'll be mostly afk.}}$
+  $\large\textcolor{#ffaff0}{\textsf{School started so i won't be as active as I used to be. edit: I'm no longer active at all, sorry!}}$
   
   $\large\textcolor{#faefda}{\textsf{✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩✮ ⋆ ˚｡𖦹 ⋆｡°✩}}$
 
