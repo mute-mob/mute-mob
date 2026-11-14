@@ -3,4 +3,12 @@
 
 <a>![Alt text](https://github.com/user-attachments/assets/f0f889b0-8aa5-4962-9433-68241a38f405)</a> 
 
-![Green Square](./square.svg)
+<div align="center">
+  <table>
+    <tr>
+      <td align="right" width="320" height="420">
+        <!-- Put your content here -->
+      </td>
+    </tr>
+  </table>
+</div>
