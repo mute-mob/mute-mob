@@ -1,1 +1,1 @@
-<a>![Alt text](https://github.com/user-attachments/assets/f0f889b0-8aa5-4962-9433-68241a38f405)</a>
+<a>![Alt text](https://github.com/user-attachments/assets/f0f889b0-8aa5-4962-9433-68241a38f405)</a> <img width="347" height="94" alt="glitter-17o311f74c5" src="https://github.com/user-attachments/assets/80430f23-8c39-498f-bd45-a553a2b07132" />
