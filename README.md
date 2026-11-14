@@ -6,3 +6,4 @@
 &nbsp;&nbsp; $\large\textcolor{#faefda}{\textsf{strawpage(soon)⤴︎)}}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\large\textcolor{#faefda}{\textsf{pronouns cc⤴︎}}$ &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $\large\textcolor{#faefda}{\textsf{atabook⤴︎}}$  
 
 
+[<img width="300" height="400" alt="𝑇𝑤𝑖𝑡𝑡𝑒𝑟___𝑘𝑜𝑎𝑓𝑟𝑒𝑒𝑑𝑟𝑎𝑤__2_-removebg-preview" src="https://github.com/user-attachments/assets/571e9563-24b7-467e-ada2-cecd678f92aa" />](https://kageyamamobshigeo.straw.page/) 
