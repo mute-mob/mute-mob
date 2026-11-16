@@ -10,7 +10,7 @@ this is a big wip guys!!!!!!!!!!!
 <table align="right">
   <tr>
     <td align="center" width="380" height="350">
-      <!-- Put your "about me!!" text or content here -->
+      <! uggkasgu !>
     </td>
   </tr>
 </table>
