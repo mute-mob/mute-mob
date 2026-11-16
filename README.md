@@ -4,4 +4,5 @@
 </a>
 
 <!-- Keep your left-side character image above or aligned left -->
-<img src="https://github.com/user-attachments/assets/f0f889b0-8aa5-4962-9433-68241a38f405" align="left" width="280" />
+<img src="https://github.com/user-attachments/assets/f0f889b0-8aa5-4962-9433-68241a38f405" align="left" width="280" />  
+$\textcolor{red}{\textsf{text}}$ 	
